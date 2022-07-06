@@ -1,0 +1,2 @@
+# strukurdataT5.juwitarahmawati
+strukurdataT5.juwitarahmawati
